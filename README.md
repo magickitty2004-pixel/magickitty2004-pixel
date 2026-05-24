@@ -15,5 +15,6 @@ int if u are - not anything above :)
 random things - i listen to music while i play i'm trying to learn how to shade to. so if u can give me any tips id 
 allow it^^ feel free to cuddle anytime idc. 
 
+luther and nana fictionkins!
 
 
