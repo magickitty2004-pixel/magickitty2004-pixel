@@ -17,4 +17,8 @@ allow it^^ feel free to cuddle anytime idc.
 
 luther and nana fictionkins!
 
+fandoms- eddsworld regretevator ranfren CP dream game/forsken.
+
+https://blog.lewolang.com/en/posts/18/magic-and-magical   - magic pic 
+https://www.scoopmagic.co.uk/do-you-believe-in-magic/   - magic pic 2
 
