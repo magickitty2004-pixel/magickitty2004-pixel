@@ -23,12 +23,11 @@ https://blog.lewolang.com/en/posts/18/magic-and-magical   - magic pic
 https://www.scoopmagic.co.uk/do-you-believe-in-magic/   - magic pic 2
 
 
-I don't want you to suffer
-I just want you to die
-You're such a fucking bummer
-Why do you even try?
-I know that I'm being mean
-And everything in between
-I'm sick, I know I'm obscene
-I talk shit like a machine.
-
+In the menstrual ocean
+Trickling down my 😒
+You'll find a worm
+Stitched inside my womb
+In the menstrual ocean
+Trickling down my 😒
+You'll find a worm
+Stitched inside my womb (✿◕‿◕✿)
