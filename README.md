@@ -4,7 +4,7 @@ this is just for pony town kay? alr lets get started
 i'm gonna introduce myself my names ashpin or ash. you can call me any gender idgaf
 i'm just spec in game since i dont really play roblox 
 
-i'm pansexual and ace 
+i'm bi and ace 
 
 i sadly get really attached to people and sensitive
 
