@@ -1,3 +1,3 @@
-wip today doing straw first LAOIAOLoLOLoL
+ok no strawpage i might aswell do rest here anger🤤✌️
 
 
