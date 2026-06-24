@@ -1,3 +1,3 @@
-ok no strawpage i might aswell do rest here anger🤤✌️
+ok holy shit change of plan I WILL DO THIS GITHUB AND STRAW OMGGGEWBIHUDOUHIYEGHBHBWKQWJOIHBJ
 
 
