@@ -1,3 +1,3 @@
-ok holy shit change of plan I WILL DO THIS GITHUB AND STRAW OMGGGEWBIHUDOUHIYEGHBHBWKQWJOIHBJ
+bro i'm taking a rest🤤✌️
 
 
