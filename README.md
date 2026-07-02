@@ -2,14 +2,11 @@ little warning: i might be very rude when u bring friends around.
 
 ................................................................................ ̿̿ ̿̿ ̿̿ ̿'̿'\̵͇̿̿\з=(◣_◢)=ε/̵͇̿̿/’̿’̿ ̿̿.....................................................................................
 
-<img width="736" height="736" alt="1003810204460221744" src="https://github.com/user-attachments/assets/8bd6a988-ceaf-42a1-947c-8447a4ed0d35" />
+<img width="736" height="460" alt="g" src="https://github.com/user-attachments/assets/05dea5fb-ff42-41dd-be1f-6a2fa625a9ca" />
+
 
 "can i get a angel shot pls." - "for who?"    "my girlfrienddddidhuhduhdbhb"   mmm pancakes✌️🤤
 I CANT BREATHEi have so many tabs open laughing emoij hwhhwhwhhwhehhahahahah i'm so funnyyyyyyyyy!! i have this nonexistent ahoge just poking out my hair and my jaw was dropped WHAT ARE U TALKIG ABOUT- i love pancakes they taste so fuzzy...
-
-<img width="498" height="498" alt="download" src="https://github.com/user-attachments/assets/dc1a5381-5ab5-4bd8-bcfd-86c5f6ee063e" /> heheh!
-
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH this is just blank. lowkey just got a jittery freeze through my small bones 
 
 <img width="326" height="312" alt="Screenshot 2026-06-25 231704" src="https://github.com/user-attachments/assets/f99b5155-0f90-43f2-a992-18af4aed34d3" />   <---- me and myself not enjoying life OMG bro ( ´ཀ` )
 
